@@ -1,3 +1,5 @@
+For min programmerings lærer:
+Navn: Zulay Bashueva
 Kim Petras is slaying
 How to reach me: Don't
 
